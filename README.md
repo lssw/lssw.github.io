@@ -29,3 +29,5 @@
 [信息浪潮淹死了无数不会游泳的家长和孩子](https://mp.weixin.qq.com/s?__biz=MzIxMjMyNzczMQ==&mid=2247484366&idx=1&sn=56b9c16654f48966430b450a5797ab66&chksm=97468f92a031068421c7b5fd60d9963a2c6180b2aa3aebb075b7ec1ee3d8c5e5c40e598caec5&token=1940656383&lang=zh_CN#rd "信息浪潮淹死了无数不会游泳的家长和孩子")
 
 ![](https://raw.githubusercontent.com/lssw/lssw.github.io/master/947634104.jpg)
+
+![](https://github.com/lssw/lssw.github.io/blob/master/169373507.jpg)
