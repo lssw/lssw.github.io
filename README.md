@@ -1,8 +1,6 @@
 [**龙叔思维淘宝店**](http://longshusiwei.taobao.com)
 
 [**龙叔思维微店**](https://weidian.com/?userid=207170441) 
-
-[AirCourse爱课简介-中国少儿在线大师课堂](http://mp.weixin.qq.com/s?__biz=MzIxMjMyNzczMQ==&mid=100000822&idx=1&sn=eef1662deb2e9b43521cdb755f8e375b&chksm=1746886a2031017ce5f3f6b810a483794ffa27bf54b3248ab365b28d8ab34c552135f805d119#rd)
  
 [爱课AirCourse初体验](https://mp.weixin.qq.com/s?__biz=MzIxMjMyNzczMQ==&mid=2247484438&idx=1&sn=c424ee0c0a708b4c0ea54af7f627411a&chksm=9746884aa031015c385e2c28fb364cb76d857a437e6a7e21164a2a4761e4508806e6613915c1&mpshare=1&scene=1&srcid=&pass_ticket=9GG5x8lN2EQBAPzelC0bU52DJmIE9w59HNQQpTG44N0%3D#rd "爱课AirCourse初体验") 
 
