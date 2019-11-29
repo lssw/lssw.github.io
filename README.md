@@ -1,6 +1,4 @@
 [**龙叔思维微店**](https://weidian.com/?userid=207170441) 
- 
-[爱课AirCourse初体验](https://mp.weixin.qq.com/s?__biz=MzIxMjMyNzczMQ==&mid=2247484438&idx=1&sn=c424ee0c0a708b4c0ea54af7f627411a&chksm=9746884aa031015c385e2c28fb364cb76d857a437e6a7e21164a2a4761e4508806e6613915c1&mpshare=1&scene=1&srcid=&pass_ticket=9GG5x8lN2EQBAPzelC0bU52DJmIE9w59HNQQpTG44N0%3D#rd "爱课AirCourse初体验") 
 
 [RAZ-PLUS组班集结号](https://mp.weixin.qq.com/s?__biz=MzIxMjMyNzczMQ==&mid=2247484374&idx=1&sn=a7396718df574eb5892ca90b4bf12d1c&chksm=97468f8aa031069cf15f9cd4f04eab870e0246074739c417772bdb97fadee14b31761d4ebc36&token=1940656383&lang=zh_CN#rd "RAZ-PLUS组班集结号")
 
