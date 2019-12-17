@@ -1,4 +1,5 @@
-[**龙叔思维微店**](https://weidian.com/?userid=207170441) 
+![](https://raw.githubusercontent.com/lssw/lssw.github.io/master/947634104.jpg) 
+![](https://raw.githubusercontent.com/lssw/lssw.github.io/master/lssw.jpg)
 
 [RAZ-PLUS组班集结号](https://mp.weixin.qq.com/s?__biz=MzIxMjMyNzczMQ==&mid=2247484374&idx=1&sn=a7396718df574eb5892ca90b4bf12d1c&chksm=97468f8aa031069cf15f9cd4f04eab870e0246074739c417772bdb97fadee14b31761d4ebc36&token=1940656383&lang=zh_CN#rd "RAZ-PLUS组班集结号")
 
@@ -28,5 +29,4 @@
 
 [信息浪潮淹死了无数不会游泳的家长和孩子](https://mp.weixin.qq.com/s?__biz=MzIxMjMyNzczMQ==&mid=2247484366&idx=1&sn=56b9c16654f48966430b450a5797ab66&chksm=97468f92a031068421c7b5fd60d9963a2c6180b2aa3aebb075b7ec1ee3d8c5e5c40e598caec5&token=1940656383&lang=zh_CN#rd "信息浪潮淹死了无数不会游泳的家长和孩子")
 
-![](https://raw.githubusercontent.com/lssw/lssw.github.io/master/947634104.jpg) 
-![](https://raw.githubusercontent.com/lssw/lssw.github.io/master/longshu.jpg)
+[**龙叔思维微店**](https://weidian.com/?userid=207170441) 
