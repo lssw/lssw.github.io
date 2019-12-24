@@ -1,6 +1,9 @@
 ![](https://raw.githubusercontent.com/lssw/lssw.github.io/master/lssw_new.jpg) 
 ![](https://raw.githubusercontent.com/lssw/lssw.github.io/master/longshu_new.jpg)
 
+
+[英文桥梁书推荐书单](https://mp.weixin.qq.com/s?__biz=MzIxMjMyNzczMQ==&mid=2247484637&idx=1&sn=a14b05bdcb7c5d2535ee222b5e6652d2&chksm=97468881a03101977ec29a0de900c0b400236c87b97e14b89ef39e5272f89e8d297dd8d5b140&mpshare=1&scene=1&srcid=&sharer_sharetime=1577155799007&sharer_shareid=a447ee6574319813c914e20718a7e9f5&exportkey=ARm50dpI2m7bWX%2F101UBaaY%3D&pass_ticket=D6NWWEO%2BJIXTLMq6hg52Ah3Q%2FeHLo1qIEIDXa0EkGeE%3D#rd)
+
 [RAZ-PLUS组班集结号](https://mp.weixin.qq.com/s?__biz=MzIxMjMyNzczMQ==&mid=2247484374&idx=1&sn=a7396718df574eb5892ca90b4bf12d1c&chksm=97468f8aa031069cf15f9cd4f04eab870e0246074739c417772bdb97fadee14b31761d4ebc36&token=1940656383&lang=zh_CN#rd "RAZ-PLUS组班集结号")
 
 [RAZ实践周年记](https://mp.weixin.qq.com/s?__biz=MzIxMjMyNzczMQ==&mid=2247484369&idx=1&sn=522b81279d4d0d8447f7762f700b2e69&chksm=97468f8da031069ba21edd4d2dfa9d9b944ae4d8cfbb614a7493851d7f4124b9a175023c6f51&token=1940656383&lang=zh_CN#rd "RAZ实践周年记")
